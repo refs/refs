@@ -1,4 +1,4 @@
-### Hola 👋
+# Hola 👋
 
 Name's Alex, Alex Unger. It sure was a fun way how he got into coding, but he's come a long way ever since.
 
