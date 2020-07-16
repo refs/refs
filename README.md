@@ -7,3 +7,4 @@ Proud father of Fred, Husband and dog cuddler, avid climber and mediocre program
 Always looking for a climbing sparring partner 🧗🏼‍♂️ let's hang out!
 
 ![GitHub Logo](https://media.giphy.com/media/2nKj62n7anS1y/giphy.gif)
+[visits](https://profile-counter.glitch.me/refs/count.svg)
